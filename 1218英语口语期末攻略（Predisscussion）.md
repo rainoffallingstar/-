@@ -41,13 +41,15 @@
 ##### issue1 mother child stay-at-home mother 
 
 - the development of child \company
+> if the parents don't take the child,then the child would be taken by his/her grandpa,or hire someone?
 - the income\career of mother 
-- why is not the father? it is a kind of  gender inequality?
+- why is not the father? it is a kind of  gender inequality? 
+> or say that it depends on who makes more money between the parents.
 - ...
 
 ##### issuse2  We Media  new life style
 
-- what is the relationship between this two concept?
+- 
 - the content of we media
 - the form of we media
 - the concept of we media
@@ -59,7 +61,11 @@
 
 - standerd of beauty:inner or apperance
 - the funtion of the surgery
-- what about the failded ones?
+- what about the failded ones? side effects
+- feel uncomfortable for new looking?
+- satisfy the need of social activity
+- a better apperance more satisfied
+- confidence
 - once the everyone do the same surgery,will the faces be the same,it is really make people feel better?
 - the diversity of defects make the world corlorful?
 - there is no perfect,thus no better?
@@ -72,6 +78,9 @@
 - the wide use of surrogacy or the destory of voluntary surrogacy?
 - poor people can't access to it any more?
 - the law?
+- will make woman as tool to carry badies?
+- the need of people can't have kids for all kinds of reasons
+- 
 - ...
 
 ##### issue 5 job-seeking  A **diploma** or experience
@@ -87,8 +96,10 @@
 - in the side of a seeking seat student
 - in the side of  the occupying seat student
 - how do you react with this situation
+- the rules made by FJMU
 - ...
-
+#### CONTRIBUTIORS
+ZHOU FEIFENG.ZHENG YANHUA.ZHANG YU.CAI JIANFAN.SUN BOWEN.XIE WEIZHONG.
 
 
 
