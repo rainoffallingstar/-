@@ -53,13 +53,20 @@
 - should we accept it completly?
 - some changes the we media bring
 > the way to get information passive to active
+
 > the way to make new friends however it also cause some devil things
+
 > participate in social events and post news, more emotional ,make individual's voice heard
+
 > satisfy people's desire to show/become famous,like tik talk(douyin) and other live stream platform(douyu),
+
 > platform: twiteer,facebook,ins ,sinaweibo,blogs.bbs ,wechat moments... 
 - the features of we media
+
 > easy to operate
+
 > interact and spread 
+
 > used by some companies to make commercial benifits or have an actor known...
 - what is the old life style?
 - could it replace the older one?
