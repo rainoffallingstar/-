@@ -88,11 +88,13 @@
 
 ##### issue 4 Commercial surrogacy
 
-- for couples infecility?
-- money
+- for couples infecility(in china,the number is 150million),old aged couples/gay couples(in this kind)?
+- money-female denity/social statue/fecilitical tool?
+- india surrogate factory is labeled as tragic
+- in a BBC news ,帕皮亚use the money for the intend parents to support their family buying a bigger house and the mney to pay for the child's school fee.and her husband also stands behind her???
 - the wide use of surrogacy or the destory of voluntary surrogacy?
 - poor people can't access to it any more?
-- the law?
+- the law? will be protective
 - will make woman as tool to carry badies?
 - the need of people can't have kids for all kinds of reasons
 - 
