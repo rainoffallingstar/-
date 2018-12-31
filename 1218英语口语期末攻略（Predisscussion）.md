@@ -104,7 +104,9 @@
 
 - diploma advantages& bad sides
 > diploma is a kind of evidence that can prove somenoe's ability and educational level after study
+
 > what a diploma can't prove is that whever a person has th experience to practice
+
 > pratice often associate with skills mastered,but a diploma often just requires the scores in exams
 - the same as experience 
 - the differences
